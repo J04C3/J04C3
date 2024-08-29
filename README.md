@@ -1,5 +1,6 @@
-![778ae92b-cf10-4efc-a866-9fd3daf18f29](https://github.com/user-attachments/assets/00f1876a-7475-44f2-9712-bfaed38c1146)
+![fab2a8eb-9168-4ba1-95f8-45321d0d9090](https://github.com/user-attachments/assets/75164eb3-ba5a-4d04-8888-bc08efe32584)
 <h1>About Me</h1>
+
 
 - 👋 Hi, I’m @J04C3
 - 👀 I’m interested in ...
